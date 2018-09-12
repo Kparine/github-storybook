@@ -1,0 +1,1 @@
+Lenny the lenient stabbed Ginny the Giant in the toe with a dagger.
